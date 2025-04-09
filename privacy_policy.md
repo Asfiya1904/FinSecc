@@ -1,0 +1,3 @@
+## Privacy Policy
+
+We value your data and comply with GDPR regulations...
